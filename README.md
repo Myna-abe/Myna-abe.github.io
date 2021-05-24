@@ -1,1 +1,0 @@
-# Myna-abe.github.io
